@@ -1,4 +1,4 @@
-arts
-enameling
-sandlot
-evasion
+superstition's
+internment
+mollify
+McFadden
