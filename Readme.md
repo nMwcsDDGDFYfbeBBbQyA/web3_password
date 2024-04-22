@@ -1,4 +1,4 @@
-superstition's
-internment
-mollify
-McFadden
+cetacean's
+opalescent
+sunbathes
+skimp
