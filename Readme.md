@@ -1,4 +1,4 @@
-cetacean's
-opalescent
-sunbathes
-skimp
+viruses
+feeler
+ones
+Hazel's
